@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DaRealLula
+- 👀 I’m interested in Music
+- 🌱 I’m currently learning Psychology
